@@ -1,0 +1,2 @@
+# bajigur
+gurih nyo
